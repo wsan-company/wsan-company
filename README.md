@@ -1,4 +1,4 @@
-## About me.
+## About CEO.
 | ↓| 説明 |
 | - | - |
 | 名前 | 笑さん / Wsan |
